@@ -1,3 +1,4 @@
 # methood
-i m  from Home)
-i love money
+i m  from Home
+i no spiek english(
+lol
